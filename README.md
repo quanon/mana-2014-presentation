@@ -1,3 +1,3 @@
 # 野田が何をやっているのかわからない件
 
-:hatched_chick:
+:hatched_chick: いいかげんにして～ ほしいけど～ あなた〜 :notes:
